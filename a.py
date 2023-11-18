@@ -1,6 +1,6 @@
 ayifvgdkn
 vdbhxknsfhkubmkgevsksbhkebevehfxckbjfeilkfnrdfm e
 vidbk
-a=8
+a=80
 vid hk,ns
 NARIYAM
